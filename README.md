@@ -1,1 +1,1 @@
-# gariban
+# BU BOT NARCOSA AİT BİR BOTTUR
